@@ -1,1 +1,1 @@
-Professional portfolio website for Kathryn Vela.
+Professional portfolio website for Paul Kane.
